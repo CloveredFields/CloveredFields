@@ -5,7 +5,8 @@
 ![](https://files.catbox.moe/qwca1a.png)
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀@devotedplanet
-
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my party! 
+                                          
+   Burger party : [@devotedplanet](https://www.github.com/devotedplanet) [@dSolar-drsapph](https://github.com/Solar-drsapph)
 
 ![](https://files.catbox.moe/k7dc0x.png)
