@@ -5,8 +5,8 @@
 ![](https://files.catbox.moe/qwca1a.png)
 
 
- ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my party! 
+ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my friends plz and ty! C+H is suggested if im alone!! :D
                                           
-   Burger party : [@devotedplanet](https://www.github.com/devotedplanet) [@dSolar-drsapph](https://github.com/Solar-drsapph)
+   Most of my skins are gifted or handed to me! I take any wifies skins don't delete ur old wifies plz give it to me I beg and plead..
 
 ![](https://files.catbox.moe/k7dc0x.png)
