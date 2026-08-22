@@ -2,6 +2,8 @@
 
 
 ![](https://files.catbox.moe/qwca1a.png)
+
      
-:  🐾  [Ata!](https://cloveredfields.atabook.org/)
+[Ata!](https://cloveredfields.atabook.org/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Strwpage!](https://cloveredfieldss.straw.page) ⠀⠀⠀⠀⠀⠀⠀⠀⠀txt
+
 ![](https://files.catbox.moe/k7dc0x.png)
