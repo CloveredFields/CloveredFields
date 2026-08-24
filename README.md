@@ -7,6 +7,6 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my friends plz and ty! C+H is suggested if im alone!! :D
                                           
-   Most of my skins are gifted or handed to me! I collect wifies Parrot saparata zam and twotime skins! don't delete your old skins give them to be begs and pleas....
+   Most of my skins are gifted or handed to me! I love my friends dawhhdawww!!
 
 ![](https://files.catbox.moe/k7dc0x.png)
