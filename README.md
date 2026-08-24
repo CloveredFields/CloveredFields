@@ -7,6 +7,6 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my friends plz and ty! C+H is suggested if im alone!! :D
                                           
-   Most of my skins are gifted or handed to me! I love my friends dawhhdawww!!
-
+   Most of my skins are gifted or handed to me! I love my friends dawhhdawww!! [@devotedplanet](https://github.com/devotedplanet) 
+[@Solar-drsapph](https://github.com/Solar-drsapph)
 ![](https://files.catbox.moe/k7dc0x.png)
