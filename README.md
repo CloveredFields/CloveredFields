@@ -7,7 +7,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my friends plz and ty! C+H is suggested if im alone!! :D
                                           
-   Gift me Wifies Zam wato saps or twotime skins plz and ty I love my friends dawhhdawww!! [@devotedplanet](https://github.com/devotedplanet) 
+   Gift me Wifies Zam saps or twotime skins plz and ty I love my friends dawhhdawww!! [@devotedplanet](https://github.com/devotedplanet) 
 [@Solar-drsapph](https://github.com/Solar-drsapph)
                 
 ![](https://files.catbox.moe/k7dc0x.png)
