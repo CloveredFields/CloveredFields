@@ -9,5 +9,5 @@
                                           
    Gift me Wifies Zam wato saps or twotime skins plz and ty I love my friends dawhhdawww!! [@devotedplanet](https://github.com/devotedplanet) 
 [@Solar-drsapph](https://github.com/Solar-drsapph)
-                Gift me wifies saps Wato/ken or parrot skins plz and ty
+                
 ![](https://files.catbox.moe/k7dc0x.png)
