@@ -8,7 +8,7 @@
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ Avoid C+HING when im w my friends plz and ty! C+H is suggested if im alone!! :D
     I love my friends dawhhdawww [@devotedplanet](https://github.com/devotedplanet) [@Solar-drsapph](https://github.com/Solar-drsapph)
                                           
-   Gift me Wifies/Directorfies wembu saps or twotime skins plz and ty! ill be very happy! i also do skin trades! dc: cloveredfields!! dont be scared 2 shoot a dm to gift/trade me!
+   Gift me Wifies/Directorfies wato saps or twotime skins plz and ty! ill be very happy! i also do skin trades! dc: cloveredfields!! dont be scared 2 shoot a dm to gift/trade me!
 
                 
 ![](https://files.catbox.moe/k7dc0x.png)
