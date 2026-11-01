@@ -9,9 +9,7 @@ I do skin trades and commissions!! You can find more info here. > [Commissions](
 
 I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn .
                                                                                                                               
-I know a lot of people prob don't read prns page 😒.. but dats ok! That's why I'll put info here to... 
-Please do NOT C+H w me when I'm with people already mainly when im with my party! if your covering me i'll prolly js hide you for 15 minutes 😊 I love my party members id do anything for them, so this is mainly for them! 
-
+Try NOT to C+H when im with people, that would be appreciated unless we all know you! or if you ask to sit with us, im sure we will let you in!! C+H freely if im alone!!
 
 Party members!! 
 
