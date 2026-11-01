@@ -7,3 +7,10 @@ I'm not making this fancy rn, prob not gonna be doing that for awhile actually! 
 I do skin trades and commissions!! You can find more info here. > [Commissions](https://skintradesandcommisons.straw.page)⠀Dont be shy.. i dont bite smiles.⠀⠀⠀
                                                                                                                               
 I know a lot of people prob don't read prns page 😒.. but dats ok! That's why I'll put info here to... 
+Please do NOT C+H w me when I'm with people already mainly when im with my party! if your covering me i'll prolly js hide you for 15 minutes 😊 I love my party members id do anything for them, so this is mainly for them! 
+
+
+Party members!! 
+
+
+[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)
