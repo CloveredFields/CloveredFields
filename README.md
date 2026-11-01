@@ -5,3 +5,5 @@ I'm not making this fancy rn, prob not gonna be doing that for awhile actually! 
  <a href='https://postimg.cc/21SR0Kz2' target='_blank'><img src='https://i.postimg.cc/vZWYHJCF/Screenshot-20261030-003032.png' border='0' alt='Screenshot-20261030-003032'></a>                                                                                                                      
 
 I do skin trades and commissions!! You can find more info here. > [Commissions](https://skintradesandcommisons.straw.page)⠀Dont be shy.. i dont bite smiles.⠀⠀⠀
+                                                                                                                              
+I know a lot of people prob don't read prns page 😒.. but dats ok! That's why I'll put info here to... 
