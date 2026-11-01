@@ -8,10 +8,13 @@ I do skin trades and commissions!! You can find more info here. > [Commissions](
 
 
 I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn .
+
+
+I am happily taken!! please do not flirt w me or make weird jokes to me. I will block you.                                                                                                                           
                                                                                                                               
 Try NOT to C+H when im with people, that would be appreciated unless we all know you! or if you ask to sit with us, im sure we will let you in!! C+H freely if im alone!!
 
 Party members!! 
 
 
-[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)
+[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)  .  [Asch](https://github.com/MaceGrounds)
