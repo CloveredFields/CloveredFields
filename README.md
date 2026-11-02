@@ -22,3 +22,14 @@ Party members!!
 
 
 [planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)  .  [Asch](https://github.com/MaceGrounds) . [Marz](https://github.com/Marz-398) . [Toast](https://github.com/Sugar-coatedtoast) + 2 w/o github!
+
+
+Titles !!
+
+[Title Town's](https://github.com/title-town) Directorfies
+
+[pt-everypony](https://github.com/pt-everypony) Directorfies & Odessey duo w [Asch](https://github.com/MaceGrounds) 
+
+[pt-friendships](https://github.com/pt-friendships) solar systemm trio w [planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)
+
+[ponychivements](https://github.com/ponychievements) Cuddly player
