@@ -14,7 +14,7 @@ I do skin trades and commissions!! You can find more info here. > [Commissions](
 I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn dc @ cloveredfields dms are open but if u add me lemme a message request or tell me its from pt! .
 
 
-I am happily taken!! please do not flirt w me or make weird jokes to me. I will block you.                                                                                                                           
+I am happily taken!! please do not flirt w me or make weird jokes to me. I will block you. the evil to my director blushes                                                                                                                       
                                                                                                                               
 Try NOT to C+H when im with people, that would be appreciated unless we all know you! or if you ask to sit with us, im sure we will let you in!! C+H freely if im alone!! More info [Prns!](https://pronouns.cc/@CloveredFields)
 
