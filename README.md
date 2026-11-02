@@ -21,4 +21,4 @@ Try NOT to C+H when im with people, that would be appreciated unless we all know
 Party members!! 
 
 
-[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)  .  [Asch](https://github.com/MaceGrounds)
+[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)  .  [Asch](https://github.com/MaceGrounds) . [Marz](https://github.com/Marz-398) . [Toast](https://github.com/Sugar-coatedtoast) + 2 w/o github!
