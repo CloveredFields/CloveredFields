@@ -11,7 +11,7 @@ I'm not making this fancy rn, prob not gonna be doing that for awhile actually! 
 I do skin trades and commissions!! You can find more info here. > [Commissions](https://skintradesandcommisons.straw.page)⠀Dont be shy.. i dont bite smiles.⠀⠀⠀
 
 
-I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn dc @ cloveredfields dms are open but if u add me lemme a message request or tell me its from pt! .
+I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn dc @ cloveredfields dms are open but if u add me lemme a message request or tell me its from pt or reach out via ata/strawpage or even whisper me same goes for commissions! .
 
 
 I am happily taken!! please do not flirt w me or make weird jokes to me. I will block you. the evil to my director blushes                                                                                                                       
