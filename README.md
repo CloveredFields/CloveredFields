@@ -30,6 +30,8 @@ Titles !!
 
 [pt-everypony](https://github.com/pt-everypony) Directorfies & Odessey duo w [Asch](https://github.com/MaceGrounds) 
 
+[piddlesjet](https://github.com/piddlesjet) Directorfies & Leow0ok
+
 [pt-friendships](https://github.com/pt-friendships) solar systemm trio w [planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)
 
 [ponychivements](https://github.com/ponychievements) Cuddly player
