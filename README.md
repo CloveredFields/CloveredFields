@@ -8,7 +8,7 @@ I'm not making this fancy rn, prob not gonna be doing that for awhile actually! 
 
  <a href='https://postimg.cc/21SR0Kz2' target='_blank'><img src='https://i.postimg.cc/vZWYHJCF/Screenshot-20261030-003032.png' border='0' alt='Screenshot-20261030-003032'></a>                                                                                                                      
 
-I do skin trades and commissions!! You can find more info here. > [Commissions](https://skintradesandcommisons.straw.page)⠀Dont be shy.. i dont bite smiles.⠀⠀⠀
+I do skin trades & more!! You can find more info here. > [Commissions](https://skintradesandcommisons.straw.page)⠀Dont be shy.. i dont bite smiles.⠀⠀⠀
 
 
 I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious dread twotime dyle cosmo finn dc @ cloveredfields dms are open but if u add me lemme a message request or tell me its from pt or reach out via ata/strawpage or even whisper me same goes for commissions! .
