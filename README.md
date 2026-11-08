@@ -16,7 +16,7 @@ I accpet gifts too! my favs Directorfies/wifies wato leowook saps , subconscious
 
 I am happily taken!! please do not flirt w me or make weird jokes to me. I will block you. the evil to my director blushes                                                                                                                       
                                                                                                                               
-Try NOT to C+H when im with people, that would be appreciated unless we all know you! or if you ask to sit with us, im sure we will let you in!! C+H freely if im alone!! More info [Prns!](https://pronouns.cc/@CloveredFields)
+Try NOT to C+H when im with people, that would be appreciated unless we all know you! or if you ask to sit with us, im sure we will let you in!! C+H freely if im alone!! i will prolly hide you if your covering me not permanently tho. More info [Prns!](https://pronouns.cc/@CloveredFields)
 
 Party members!! 
 
