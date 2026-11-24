@@ -30,6 +30,6 @@ Titles !!
 
 [piddlesjet](https://github.com/piddlesjet) Directorfies & Leow0ok
 
-[pt-friendships](https://github.com/pt-friendships) solar systemm trio w [planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)
-
 [ponychivements](https://github.com/ponychievements) Cuddly player
+
+[ponytown nominations](https://github.com/pony-town-nominations) directorfies
