@@ -21,14 +21,12 @@ Try NOT to C+H when im with people, that would be appreciated unless we all know
 Party members!! 
 
 
-[planet](https://github.com/hummfiez)  .  [Solaris](https://github.com/Solar-drsapph)  .  [Asch](https://github.com/MaceGrounds) . [Marz](https://github.com/Marz-398) . [Toast](https://github.com/Sugar-coatedtoast) + 2 w/o github!
-
 
 Titles !!
 
 [Title Town's](https://github.com/title-town) Directorfies
 
-[pt-everypony](https://github.com/pt-everypony) Directorfies & Odessey duo w [Asch](https://github.com/MaceGrounds) 
+[pt-everypony](https://github.com/pt-everypony) Directorfies & airstrike duo w [berry](https://github.com/Tfpknockout) 
 
 [piddlesjet](https://github.com/piddlesjet) Directorfies & Leow0ok
 
